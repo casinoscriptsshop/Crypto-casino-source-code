@@ -30,4 +30,4 @@ Visit [BuyCasinoScript.com](https://buycasinoscript.com) today to explore our of
 
 ---
 
-Thank you for considering BuyCasinoScripts.com for your casino software needs. We look forward to helping you achieve success in the online gaming industry.
+Thank you for considering BuyCasinoScript.com for your casino software needs. We look forward to helping you achieve success in the online gaming industry.
