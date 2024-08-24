@@ -7,7 +7,7 @@
 
 
 
-At [BuyCasinoScript.com](https://buycasinoscript.com), we specialize in providing top-notch casino software solutions for your online gaming needs. Whether you're looking to launch a new online casino or enhance your existing platform, we've got you covered with our wide range of products and services.
+At [BuyCasinoScripts.com](https://buycasinoscripts.com), we specialize in providing top-notch casino software solutions for your online gaming needs. Whether you're looking to launch a new online casino or enhance your existing platform, we've got you covered with our wide range of products and services.
 
 ### What We Offer:
 - **Premade Code:** Ready-to-use casino scripts to get your site up and running quickly.
@@ -24,9 +24,8 @@ At [BuyCasinoScript.com](https://buycasinoscript.com), we specialize in providin
 For inquiries and support, feel free to contact us via:
 - **Telegram:** [t.me/athenian](https://t.me/athenian)
 - **Discord:** [discord.gg/cryptocasino](https://discord.gg/cryptocasino)
-- **Email:** [support@buycasinoscript.com](mailto:support@buycasinoscript.com)
 
-Visit [BuyCasinoScript.com](https://buycasinoscript.com) today to explore our offerings and take your online casino to the next level!
+Visit [BuyCasinoScripts.com](https://buycasinoscripts.com) today to explore our offerings and take your online casino to the next level!
 
 ---
 
